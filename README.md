@@ -5,7 +5,8 @@ ___
 ```
 Афтор: я
 ```
-![памагити](1637904822_65-koshka-top-p-plachushchego-kota-79.jpg)
+![памагити](https://koshka.top/uploads/posts/2021-11/1637904822_65-koshka-top-p-plachushchego-kota-79.jpg)
+
 > <<Безнадежно — это когда на крышку гроба падает земля. Остальное можно исправить>>("Перевозчик")
 
 [Я не пишу стихи](https://vk.com/club218500409)
